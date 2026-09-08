@@ -7,7 +7,7 @@ chroni<ins>cally il</ins>l ✧ ⁺ disa<ins>bled</ins> ࿐ au<ins>adhd</ins> ![]
 ![](https://wilardo.crd.co/assets/images/gallery14/7781f2a7_original.gif?v=d0e71742) *o*n<ins>fp</ins> 𖤐 4w<ins>5</ins> 𝜗𝜚 gem<ins>ini</ins> ۪ 𖦹 ׂ eng 𓈒 ୭ pa<ins>gan</ins>
 ‧₊˚♪ coll<ins>ege athle</ins>te 𝄞₊˚⊹
 
-![](https://i.imgur.com/1M4Omhl.gif) [more <ins>abt me</ins>](https://rentry.co/sinfully-pure-a) ![](https://biscuit.crd.co/assets/images/gallery02/9d01cc5b.gif?v=ca0f6e9d) ***#*** [b<ins>yi</ins> & d<ins>ni</ins>](https://rentry.co/sinfully-pure-b) ![](https://xyz.crd.co/assets/images/gallery08/8c9a25fb.gif?v=6ecccb1c)
+![](https://i.imgur.com/1M4Omhl.gif) [more abt me<](https://rentry.co/sinfully-pure-a) ![](https://biscuit.crd.co/assets/images/gallery02/9d01cc5b.gif?v=ca0f6e9d) ***#*** [byi & dni](https://rentry.co/sinfully-pure-b) ![](https://xyz.crd.co/assets/images/gallery08/8c9a25fb.gif?v=6ecccb1c)
 
 ![agender](https://f2.toyhou.se/file/f2-toyhou-se/images/76775894_CyHJwe8d5bR84f1.png) ![DEMI-aroace](https://f2.toyhou.se/file/f2-toyhou-se/images/76775453_7ubSk2giW57pCct.png) ![disability pride](https://f2.toyhou.se/file/f2-toyhou-se/images/89325745_ledT2tHoG4sd8w2.png)
 
