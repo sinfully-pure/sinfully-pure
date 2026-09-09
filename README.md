@@ -1,4 +1,6 @@
-<p align=center><img src="https://64.media.tumblr.com/cb087ec99f35551b10c60fa6ff0c0604/26a8b51eecf444d6-b5/s400x600/718b39c43eb1db65b37772803c67d4a4a2844da9.gifv" alt="rainbow stars"/><img src="https://64.media.tumblr.com/cb087ec99f35551b10c60fa6ff0c0604/26a8b51eecf444d6-b5/s400x600/718b39c43eb1db65b37772803c67d4a4a2844da9.gifv" alt="rainbow stars"/></p>
+<p align=right
+
+ ![](https://komarev.com/ghpvc/?username=sinfully-pure&color=81e4c9&style=plastic&label=profile+views)</p><p align=center><img src="https://64.media.tumblr.com/cb087ec99f35551b10c60fa6ff0c0604/26a8b51eecf444d6-b5/s400x600/718b39c43eb1db65b37772803c67d4a4a2844da9.gifv" alt="rainbow stars"/><img src="https://64.media.tumblr.com/cb087ec99f35551b10c60fa6ff0c0604/26a8b51eecf444d6-b5/s400x600/718b39c43eb1db65b37772803c67d4a4a2844da9.gifv" alt="rainbow stars"/></p>
 
 ## <p align=center> **pu<ins>re</ins>** ***#*** any pr<ins>onou</ins>ns ***#*** 9<ins>teen</ins> </p>
 
@@ -25,5 +27,7 @@
 <p align=center><bold>"authors" note!!</bold></p>
 
 <p align=center>hi guys im kinda dipping my toes back into the regi community, but was most active in 2023 and 2024. if you want or need to contact me, use the links above. my disc isn't public but not hard to find, otherwise, toyhouse is probably the best way to get in touch!</p>
+
+<p align=center><img src="https://gifcity.carrd.co/assets/images/gallery158/18428878.gif?v=371108e7" alt="addicted to coca-cola blinkie pixel gif"/> <img src="https://external-media.spacehey.net/media/s9CoN5aMaFmWAMgGqauj2AL5z635erWK15jAb5ZyeecA=/https://i.ibb.co/GtKhzg8/done-02-bc52975bf7a03f8b60e81580dcf324cd.gif" alt="im losing my mind blinkie pixel gif"/> <img src="https://wilardo.crd.co/assets/images/gallery01/3e1515e1_original.gif?v=7d859d65" alt="crayola crayons blinkie pixel gif"/> <img src="https://64.media.tumblr.com/b40f6953d0998e38ebebb53e6f677b12/14df2b8e0ccc2214-6f/s250x400/10f38b699ecd1f083a229c83fd66edacb500e3ae.gifv" alt="i <3 summer blinkie pixel gif"/> <img src="https://64.media.tumblr.com/278f53d1e620e9758d67f8128a27f664/44b88cdeb699e68c-cd/s250x400/1b13c1b85195f84eac70041fce5a4a4d37b63e49.gifv" alt="my code wont work blinkie pixel gif"/> <img src="https://64.media.tumblr.com/a0deed3dd588bdc056d0d995bc465408/c0de5bfbb8e74f33-3e/s250x400/a7a0a795ecebd843cf3fea6f380669f01250eaff.gifv" alt="sorry for party rockin blinkie pixel gif"/></p>
 
 <p align=center><img src="https://64.media.tumblr.com/cb087ec99f35551b10c60fa6ff0c0604/26a8b51eecf444d6-b5/s400x600/718b39c43eb1db65b37772803c67d4a4a2844da9.gifv" alt="rainbow stars"/><img src="https://64.media.tumblr.com/cb087ec99f35551b10c60fa6ff0c0604/26a8b51eecf444d6-b5/s400x600/718b39c43eb1db65b37772803c67d4a4a2844da9.gifv" alt="rainbow stars"/></p>
